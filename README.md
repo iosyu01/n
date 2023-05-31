@@ -2,6 +2,7 @@
 
 - Eitaa : @lollolIlollol
 - Soroush : @F3D4P
-- Telegram: @c3s3o
 - Rubika : @c3s3iso
+- Telegram : @c3s3o
+- Instagram : mdi.32
 - Email : c3s4c3@gmail.com
