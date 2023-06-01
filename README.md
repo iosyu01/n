@@ -2,6 +2,7 @@
 
 - Eitaa : @lollolIlollol
 - Soroush : @F3D4P
+- Shad : @Qwerty_Cube
 - Rubika : @c3s3iso
 - Telegram : @c3s3o
 - Instagram : mdi.32
