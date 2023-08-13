@@ -5,7 +5,7 @@
 - Shad : @Qwerty_Cube
 - Rubika : @c3s3iso
 - Telegram : ...
-- Instagram : mdi.32
+- Instagram : mdi.32/(naengiplus-pass4naengi)
 - Email : c3s4c3@gmail.com
 - 🕯️
 
