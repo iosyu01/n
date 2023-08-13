@@ -8,5 +8,5 @@
 - Instagram : mdi.32
 - Instagram : (naengiplus-pass4naengi)
 - Email : c3s4c3@gmail.com
-- 🕯️
+- 🕯️🧠
 
