@@ -6,7 +6,8 @@
 - Rubika : @c3s3iso
 - Telegram : ...
 - Instagram : mdi.32
-- Instagram : (naengiplus-pass4naengi)
+- Instagram2 : (naengiplus-pass4naengi)
 - Email : c3s4c3@gmail.com
+- Email2 : zmodashops@gmail.com
 - 🕯️🧠
 
