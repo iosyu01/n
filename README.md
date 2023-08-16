@@ -10,4 +10,5 @@
 - Email : c3s4c3@gmail.com
 - Email2 : zmodashops@gmail.com
 - 🕯️🧠
+- Element: https://matrix.to/#/@naengi:matrix.org
 
